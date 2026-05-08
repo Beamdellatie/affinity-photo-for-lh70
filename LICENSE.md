@@ -1,4 +1,4 @@
-
+Enhance Affinity Photo for macOS with Affinity Photo for macOS professional Preset: asset management & smart objects, the #1 preset. Includes asset management and smart objects
 
 
 
